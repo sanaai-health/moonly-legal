@@ -115,7 +115,7 @@ We may update this privacy policy as needed. We will notify you of any material 
 
 If you have questions about this privacy policy or our privacy practices, please contact us at:
 
-Email: help.moonlyapp@gmail.com
+Email: help.sanaai@gmail.com
 
 For data deletion requests, please use our form: https://docs.google.com/forms/d/e/1FAIpQLSexjThyRZHPMT6fnZrflPsFjMVajGao6PlJrNQUSHcTV1z8rg/viewform
 
